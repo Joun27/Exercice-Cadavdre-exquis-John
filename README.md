@@ -15,8 +15,12 @@ Hightkick dans sa gueule , je n'ai ni patience ni empahthie , je mets les pieds 
 
 Beaucoup de patient qui s'offre des pieds se plaignent d'une mauvaise circulation sanguine.
 
+
 # Uncharted developper 
 
 # test kresh im not trolling 
 ### trying to understand
+
+
+Beaucoup de tricot, cette mofe m'a remis les nerves en colére. Lundi, je repasse je lui dit deux, trois commandes.
 
