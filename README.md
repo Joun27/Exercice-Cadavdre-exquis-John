@@ -1,3 +1,4 @@
+
 # Uncharted developper
 
 Nous sommes les élus du nouveau monde qui nous entoure.
@@ -13,3 +14,9 @@ C'est ce que me dit la serveuse du starbuck quand je lui commande un maccchiato.
 Hightkick dans sa gueule , je n'ai ni patience ni empahthie , je mets les pieds ou je veux et c'est souvent dans la gueule .
 
 Beaucoup de patient qui s'offre des pieds se plaignent d'une mauvaise circulation sanguine.
+
+# Uncharted developper 
+
+# test kresh im not trolling 
+### trying to understand
+
